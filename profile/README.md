@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+Culture, Automation, Lean, Measurement, and Sharing - [🇧🇷] (: 
 <!--
 
 **Here are some ideas to get you started:**
